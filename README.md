@@ -1,2 +1,1 @@
-# 4k
-pour avoir une meilleur calité sur son serveur fivem
+https://mega.nz/#!2zAUXKqQ!NmKOqNZBNki7yO47JhNM7WJKGxwgJy8AddBZ2-PWFHY
